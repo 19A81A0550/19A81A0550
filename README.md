@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **varshitha0411satti@gmail.com**
 
-- 📄 Know about my experiences [resume_up.pdf](resume_up.pdf)
+- 📄 Know about my experiences [varshitha_rec_up.pdf](varshitha_rec_up.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
